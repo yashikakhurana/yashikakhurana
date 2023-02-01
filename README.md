@@ -12,3 +12,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Web app projects
 - 📫 How to reach me: ykhurana@mozilla.com
 - 😄 Pronouns: She/her
+
+Checkout my [youtube channel](https://www.youtube.com/channel/UC5hQgNik9R3tNYJCku9JHww)
